@@ -3,5 +3,5 @@
 [ata](https://kkaitoshion.atabook.org/)    [carrd](https://kkaitoshion.carrd.co/)      [straw](https://ky0kokaito.straw.page/)
 
 <p align="center">
-  <img width="300" height="300" src="https://64.media.tumblr.com/213ab0c2e3a14e5ca12909832ab3e0d5/adf3e9e1a0a7fe87-bb/s1280x1920/ea70d32b1701253f64a840908144e85ca12c57f9.gifv">
+  <img width="300" height="300" src="https://i.pinimg.com/736x/c2/28/91/c2289110bb0dd7094961ef8e328fbdc1.jpg">
 </p>
