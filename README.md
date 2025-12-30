@@ -1,7 +1,10 @@
 <p align="center">
   <img width="600" height="600" src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled473_20251230160543.png">
 </p>
-<p align="center">kyokoㅤ.ㅤkaitoㅤㅤㅤㅤhe/him</p>
+
+<h5 align="center">
+  
+kyokoㅤ.ㅤkaitoㅤㅤㅤㅤhe/him
 
 <h5 align="center">
 
