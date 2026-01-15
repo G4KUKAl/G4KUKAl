@@ -14,7 +14,7 @@ seasian ㅤㅤfiloㅤㅤ[dni](https://dni-criteria.carrd.co/)
 
 <h5 align="center">
 
-my main > [@kkaitoshion](https://github.com/kkaitoshion)
+my main > [@KAlTO-SHION](https://github.com/KAlTO-SHION)
 <h5 align="center">
 
 [atabook](https://kkaitoshion.atabook.org/)ㅤ𓏵ㅤ[carrd](https://kkaitoshion.carrd.co/)ㅤ𓏵ㅤ[strawpg](https://ky0kokaito.straw.page/)
