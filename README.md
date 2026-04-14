@@ -3,19 +3,6 @@
 </p>
 
 <h5 align="center">
-  
-kyokoㅤ.ㅤkaitoㅤㅤㅤㅤhe/him
-
-<h5 align="center">
-
-seasian ㅤㅤfiloㅤㅤ[dni](https://dni-criteria.carrd.co/)
-
-ㅤ⌒⌒ㅤㅤ⌒⌒ㅤㅤ⌒⌒ㅤㅤ⌒⌒ㅤㅤ⌒⌒
-
-<h5 align="center">
 
 my main > [@KAlTO-SHION](https://github.com/KAlTO-SHION)
-<h5 align="center">
-
-[atabook](https://kkaitoshion.atabook.org/)ㅤ𓏵ㅤ[carrd](https://kkaitoshion.carrd.co/)ㅤ𓏵ㅤ[strawpg](https://ky0kokaito.straw.page/)
 
